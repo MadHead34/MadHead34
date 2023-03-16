@@ -17,3 +17,7 @@ I hope to learn more from this tech world and it is always exciting and fun to l
 learn more of these fascinating tech tools. I also love going with the anonymous as there is unknown result but there will be a greater reward hidden in there that is waiting to emerge once the solution has arrived and it is great to have patience for this long journey.
 
 Besides being a tech aspirer, I have other interests such as Gym, Puzzles, Car, Sneakers and Video Games. So feel free to look at my profile and see what I have done for the projects and some other projects I will do 
+
+My Social Media:
+* [LinkedIn](https://www.linkedin.com/in/ming-huang-35b770168/)
+* [Github](https://github.com/MadHead34) Already there mate!
